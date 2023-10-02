@@ -9,6 +9,6 @@ Fractalism: The duality between these poles:
 
 2. The more you learn about something, the more you learn you don’t know.
 
-3, With Fractalism we can predict the future and create new tools to help with that, because of repeatable patterns known as fractals.
+3. With Fractalism we can predict the future and create new tools to help with that, because of repeatable patterns known as fractals.
 
 the source of fractals.
